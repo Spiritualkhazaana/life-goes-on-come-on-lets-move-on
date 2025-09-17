@@ -1,1 +1,3 @@
-# life-goes-on-come-on-lets-move-on
+# *Life Goes On Come On Let’s Move On Book Summary & Review*
+## *In “Life Goes On: Come On, Let’s Move On,” authors Fr. John Rose Manoj. Sac and Marie Santomauro create a transformative journey for anyone facing adversity, disappointment, or change. Across 21 insightful chapters, this book explores the realities of grief, healing, letting go, hope, and forward movement. With its blend of gentle wisdom, challenging reflection, and practical tools, the book is a lifeline for those ready to emerge from stagnation and reclaim vibrant living.* [More details…](https://spiritualkhazaana.com/life-goes-on-come-on-lets-move-on-summary/)
+## #lifegoeson #inspirationalbibleverses #spiritualgrowth #lettinggo #forgiveness
